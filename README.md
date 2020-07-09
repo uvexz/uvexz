@@ -1,16 +1,20 @@
 ### Hi there 👋
 
-<!--
-**ygbhf/ygbhf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm YJK, Welcome to my Independent World.
 
-Here are some ideas to get you started:
+Follow me on:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Mail: [uvexz@pm.me](mailto:uvexz@pm.me)
+- Telegram: [@uvexz](https://t.me/uvexz)
+- Twitter: [@uvexzz](https://twitter.com/uvexzz)
+- Instagram: [@uvexzz](https://instagram.com/uvexzz)
+
+Also follow me on:
+
+- Mastodon: [@youth@toots.social](https://toots.social/@youth)
+
+And all I need is your money.
+
+---
+
+©️ 2020 YJK, All Rights Reserved.
