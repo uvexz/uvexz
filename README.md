@@ -4,7 +4,7 @@ I'm YJK, Welcome to my Independent World.
 
 Follow me on:
 
-- Mail: [uvexz@pm.me](mailto:uvexz@pm.me)
+- Mail: [uvexz@my.id](mailto:uvexz@my.id)
 - Telegram: [@uvexz](https://t.me/uvexz)
 - Twitter: [@uvexz_eth](https://twitter.com/uvexz_eth)
 - Instagram: [@uvexz.eth](https://instagram.com/uvexz.eth)
