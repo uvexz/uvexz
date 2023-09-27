@@ -6,7 +6,7 @@ Follow me on:
 
 - Mail: [uvexz@my.id](mailto:uvexz@my.id)
 - Telegram: [@uvexz](https://t.me/uvexz)
-- Twitter: [@uvexz_eth](https://twitter.com/uvexz_eth)
+- Twitter: [@uvexzeth](https://twitter.com/uvexzeth)
 - Instagram: [@uvexz.eth](https://instagram.com/uvexz.eth)
 
 Also follow me on:
